@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tribalchiefjj
+- 👋 Hi, I’m Him 🤣
 
 <!---
 tribalchiefjj/tribalchiefjj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
